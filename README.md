@@ -1,2 +1,1 @@
-# atividade-computado
-escola kkkkkkkkkkk
+# atividade da escola
